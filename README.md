@@ -6,14 +6,6 @@ Hi, welcome to my GitHub! All my ponies are linked here!
 ✧ ೃ༄*ੈ✩
 _ . . . . . . . ︿ ❀ ︿ . . . . . . . _
 
-ο(=•ω＜=)ρ⌒☆
-**Reasons for blocking, hiding, or no int:** (I block and hide freely)
+hmmm... yeah I'm gonna work on this profile a little bit...
 
-- You are uncomfortable with minors
-- Preditor or PDF.file (p3d0)
-- Proships
-- Drama starter
-- Racist, sexist, homophobic, or transphobic
-- Anti-furry, therian, otherkin, etc. (I heavily support, and I am a furry, so dw we can chill if u want)
-
-I need to stop upd8ing this every five minutes. but uhh why are there so many Homestucks on pt? Guys I lwk did not expect to see u here! I wish I wasn't shy so we could all be friends and live happily ever after? That'd b such a vibe jus sayin.
+quick dni!: just like basic dni criteria :P
